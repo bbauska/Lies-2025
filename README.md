@@ -1,6 +1,3 @@
-# Lies-2025
-Provably false lies made by Drumpf and Afrikaner Musk.
-
 <h1>8 (eight) (provably false) LIES by the Trump Administration in the first 90 days</h1>
 
 <h3>Preamble: Elon Musk has repeatedly misled the public about federal spending while playing a leading role in 
@@ -249,4 +246,8 @@ CNN’s Gloria Pazmino contributed to this article.
 My Take: Republicans, particularly Trump Republicans are willing to take it on the chin so
 long as the 'other side' gets it worse. So what is happening is our country is being gutted
 like a fish so Trumpsters can take pride in killing democracy so Trump can gain more power.
+
+<h2>More LIES by Trump and Musk</h2>
+<h3>January 6, 2021 Insurrection</h3>
+
 
